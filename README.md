@@ -1,5 +1,1 @@
-ill edit this later......
-
-whatever......  
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F70000&width=435&lines=AHHAHAHAAHHAH)](https://git.io/typing-svg)
+[![93622241-VQGj-SBgngz-IBtfr.png](https://i.postimg.cc/HnvkygJY/93622241-VQGj-SBgngz-IBtfr.png)](https://postimg.cc/WqrvBx6C) 
