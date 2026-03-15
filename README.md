@@ -1,8 +1,4 @@
 <p align="center">
-<img src="https://i.postimg.cc/Z0tG1nYL/ezgif-2001f25b43cacb12.gif" alt="Description" width="300">
-</p>
-
-<p align="center">
   <a href="https://rentry.co/fisheir">Wҽʅƈσɱҽ ƚσ ɱყ Gαɾԃҽɳ σϝ Sʅσƚԋ!</a>
 </p>
 
