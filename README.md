@@ -2,7 +2,5 @@
 
 
 <p align="center">
-  <a href="https://rentry.co/fisheir">Wҽʅƈσɱҽ ƚσ ɱყ Gαɾԃҽɳ σϝ Sʅσƚԋ!</a>
+  <a href="https://rentry.co/fisheir">wip</a>
 </p>
-
-<p align="center"><img src="https://i.pinimg.com/originals/3e/c8/50/3ec850530c2e7a24cdec7f2ae48201c8.gif" alt="Description"</p>
