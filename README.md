@@ -4,8 +4,4 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Lilita+One&duration=2500&pause=2000&color=E754E5&center=true&vCenter=true&multiline=true&width=500&lines=An+Idle+brain+invites+the+devil+in!)](https://git.io/typing-svg)
 
 
-int if u like crk, dw, gachiakuta, re, kubz scouts!!!!!!!!! i love talking!!!!!!!!!!
-
-ill mostly talk about characters tho, yea yea
-
-only w2i tho im not comfortable talking in pub much 
+![](https://i.postimg.cc/1zqh9bX7/bc51c35301c872fcdc826ce4400e6f72.jpg)
