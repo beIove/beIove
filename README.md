@@ -5,3 +5,4 @@
 
 
 int if u like crk, dw, gachiakuta, re, kubz scouts!!!!!!!!! i love talking!!!!!!!!!!
+ill mostly talk about characters tho, yea yea
