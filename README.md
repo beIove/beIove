@@ -1,6 +1,6 @@
 
 <p align="center">
-  <a>I only play w irl ppl ik or w @TOXINlTY hii!!! (we live tgt...)</a>
+  <a>I only play w irl ppl ik or w @TOXINlTY hii!!</a>
 </p>
 <p align="center"><img src="https://i.postimg.cc/HsyVHtRJ/ezgif-26dfd3362c566064.gif" width="100" alt="Description"</p>
 
